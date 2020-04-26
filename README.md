@@ -32,7 +32,7 @@ VERSE
 scent is caught
 motherfucker better know these eyes in the whites 
 when you dive you will see the bloodshots   
-we ain't sleepin' we be circling cages 
+we ain't sleepin' (we be) and circling cages 
 with our predatory eyes (so fixed) direct on your folks / fixed on folks
 
 these traps so tight 
