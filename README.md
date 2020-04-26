@@ -20,8 +20,38 @@ Description.
 ## Lyrics
 
 ```
+MOTHNODE_ 
 
+fangs out - fangs out motherfucker
+make it further into clear tracks out / lash out
+fang out - fangs out motherfucker
+better reap what you sow
+gettin far out of reach so ya better run from the spot
+scent is caught
+motherfucker better know these eyes
+in the whites when you dive you will see blood shots   
+we ain't sleepin' we be circling cages with our
+predatory eyes tight fixed on your folks
 
+spotlight on your folk
+
+ fangs out fangs out 
+ motherfucker better - know the signs 
+ fangs out fangs out  look into my eyes, 
+calls me out, makes me feel allright   
+ and we bleed with red and white
+ 
+ call the wolves, call the wolves
+perseverent band of fangs
+ pack is angry we collectin stacks, that's right,\
+ we bleed red and white
+ 
+ you caught up, brood of fools
+ make it count for the crowd
+ now you gotta circle back, makes the rules,
+ we ain't lettin go, take a step to us
+ concrete forest is our life
+ city is what makes us us
 ```
 
 ## Lyrics Testing Ground
