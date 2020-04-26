@@ -31,7 +31,7 @@ ya better run from the spot
 VERSE
 scent is caught
 motherfucker better know these eyes in the whites 
-when you dive you will see the bloodshots   
+when you dive you will see the(m) bloodshot(s)   
 we ain't sleepin' (we be) and circling cages 
 with our predatory eyes (so fixed) direct on your folks / fixed on folks
 
@@ -40,6 +40,8 @@ can't escape into light
 lash out pinned down
 you can be sure of bite
 
+data we gather, our own purpose
+circling around
 we be circling cages
 for too long
 
