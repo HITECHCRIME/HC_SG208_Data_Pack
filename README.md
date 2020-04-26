@@ -20,23 +20,29 @@ https://www.youtube.com/watch?v=LTN2OeO_Kk8
 ## Lyrics
 
 ```
-MOTHNODE_ 
-
-fangs out - fangs out motherfucker
-make it further into clear tracks out / lash out
-fangs out - fangs out motherfucker
+CHORUS
+fangs out - fangs out motherfucker 
+make it further into clear tracks out 
+fangs out - fangs out motherfucker 
 better reap what you sow
-gettin far out of reach so ya better run from the spot
+gettin far out of reach so 
+ya better run from the spot
 
+VERSE
 scent is caught
-motherfucker better know these eyes
-in the whites (when you dive) you will see blood shots   
-we ain't sleepin' we be circling cages with our
-predatory eyes tight fixed on your folks
+motherfucker better know these eyes in the whites 
+when you dive you will see the bloodshots   
+we ain't sleepin' we be circling cages 
+with our predatory eyes (so fixed) direct on your folks
+
+these traps so tight 
+can't escape into light
+lash out pinned down
+you can be sure of bite
 
 spotlight on your folk
 
- fangs out fangs out 
+fangs out fangs out 
  motherfucker better - know the signs 
  fangs out fangs out  look into my eyes, 
 calls me out, makes me feel allright   
