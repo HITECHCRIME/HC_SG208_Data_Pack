@@ -33,12 +33,15 @@ scent is caught
 motherfucker better know these eyes in the whites 
 when you dive you will see the bloodshots   
 we ain't sleepin' we be circling cages 
-with our predatory eyes (so fixed) direct on your folks
+with our predatory eyes (so fixed) direct on your folks / fixed on folks
 
 these traps so tight 
 can't escape into light
 lash out pinned down
 you can be sure of bite
+
+we be circling cages
+for too long
 
 spotlight on your folk
 
