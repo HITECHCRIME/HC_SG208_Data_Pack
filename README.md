@@ -24,12 +24,13 @@ MOTHNODE_
 
 fangs out - fangs out motherfucker
 make it further into clear tracks out / lash out
-fang out - fangs out motherfucker
+fangs out - fangs out motherfucker
 better reap what you sow
 gettin far out of reach so ya better run from the spot
+
 scent is caught
 motherfucker better know these eyes
-in the whites when you dive you will see blood shots   
+in the whites (when you dive) you will see blood shots   
 we ain't sleepin' we be circling cages with our
 predatory eyes tight fixed on your folks
 
@@ -52,6 +53,8 @@ perseverent band of fangs
  we ain't lettin go, take a step to us
  concrete forest is our life
  city is what makes us us
+ face our wrath tonight
+ 
 ```
 
 ## Lyrics Testing Ground
