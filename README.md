@@ -20,6 +20,8 @@ https://www.youtube.com/watch?v=LTN2OeO_Kk8
 ## Lyrics
 
 ```
+<WIND WHISTLING THROUGH THE TREES, FOREST SOUNDS>
+
 CHORUS
 fangs out - fangs out motherfucker 
 make it further into clear tracks out 
