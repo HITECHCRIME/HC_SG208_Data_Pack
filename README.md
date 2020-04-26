@@ -64,6 +64,32 @@ perseverent band of fangs
  city is what makes us us
  face our wrath tonight
  
+ 
+ 
+ 
+ 
+ 
+ 
+CHORUS
+fangs out - fangs out motherfucker 
+make it further into clear tracks out 
+fangs out - fangs out motherfucker 
+better reap what you sow
+gettin far out of reach so 
+ya better run from the spot
+
+VERSE
+scent is caught
+motherfucker better know these eyes in the whites 
+when you dive you will see the bloodshots   
+we ain't sleepin' we be circling cages 
+with our predatory eyes fixed on your folks
+ 
+ 
+ 
+ 
+ 
+ 
 ```
 
 ## Lyrics Testing Ground
