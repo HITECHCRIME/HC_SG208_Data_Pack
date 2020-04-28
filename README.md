@@ -120,6 +120,12 @@ with our predatory eyes fixed on your folks
 
 ## Music Video
 
+Me with 2 virtual holograms of wolves on a virtual AR leash that dissolves once I let them out of my hand and release the programs to activate, doberman style. Slow motion low camera shot from below, moon on the sky, me in the middle and vicious scowling wolves in slowmo. Buildings, concrete jungle or forest, suburban enviros. The manifestations of the wolves are made visually of short glitchy bands that circle around the bodyshape distorting it a bit from time to time. 
+
+Scene: wolf program operating alone in the shot.
+
+Scene: wolf program appearing alone from the darkness in a mid distance. Walking into light then moving its head to observe the camera with its pale blue eye glow in the night.
+
 ## Short Cinematic Film
 
 IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see through the eyes of the wolf programs, AR glasses on eyes. Scene with the wolves just standing on both sides of me. 
