@@ -72,12 +72,6 @@ perseverent band of fangs
  city is what makes us us
  face our wrath tonight
  
- 
- 
- 
- 
- 
- 
 CHORUS
 fangs out - fangs out motherfucker 
 make it further into clear tracks out 
@@ -92,11 +86,6 @@ motherfucker better know these eyes in the whites
 when you dive you will see the bloodshots   
 we ain't sleepin' we be circling cages 
 with our predatory eyes fixed on your folks
- 
- 
- 
- 
- 
  
 ```
 
@@ -114,9 +103,13 @@ with our predatory eyes fixed on your folks
 | 3 | *i'm* **tempt**ed in a | **u**nique way  |  **you** probably |  **won't** think |
 | 4 | *as i* **reach** to grab the |  **mic** i contem-  | **plate** what i | **might** say |
 
-## Notes
+## Lore Notes
 
+Need more cybermysticism for the cover of Data Pack single album. 
 
+The lore behind the wolf motif is that operatives of Hitech Crime often use so called 'manifestations'. In the HC universe they are basically a physical real world presence of a specific digital program. 
+
+Wolf programs are commonly used to scan and surround the prey in order to gather data and eventually contain the target. Their use will be reflected in the associated music video and a short film cinematic. Stay tuned!
 
 ## Music Video
 
