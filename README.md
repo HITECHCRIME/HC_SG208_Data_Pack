@@ -12,7 +12,7 @@ Hitech Crime Cinematic Narrative Universe Single Album containing a short cinema
 
 **Production:** Killlxv?  / **Lyrics:** MOTHNODE
 
-**Beat:** https://www.youtube.com/watch?v=LTN2OeO_Kk8
+**Beat:** YUNG VENXM https://www.youtube.com/watch?v=LTN2OeO_Kk8
 
 **Narrative Design:** MOTHNODE
 
