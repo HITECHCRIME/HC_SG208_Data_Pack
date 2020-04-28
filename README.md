@@ -6,12 +6,13 @@
 
 ## Project Data
 
-Description.
-https://www.youtube.com/watch?v=LTN2OeO_Kk8
+Hitech Crime Cinematic Narrative Universe Single Album containing a short cinematic and a variety of transmedia content related to the lore. Photoshoot, photogrammetry vids, VR exeperience of the hunt, music video. Character profiles, wolf manifestation program profile and information,
 
 **Title:** Data Pack / **Featuring:** MOTHNODE
 
 **Production:** Killlxv?  / **Lyrics:** MOTHNODE
+
+**Beat:** https://www.youtube.com/watch?v=LTN2OeO_Kk8
 
 **Narrative Design:** MOTHNODE
 
