@@ -112,4 +112,10 @@ with our predatory eyes fixed on your folks
 
 ## Notes
 
+
+
 ## Music Video
+
+## Short Cinematic Film
+
+IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see through the eyes of the wolf programs, AR glasses on eyes. Scene with the wolves just standing on both sides of me. 
