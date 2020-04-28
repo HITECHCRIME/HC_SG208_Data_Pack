@@ -121,4 +121,4 @@ Scene: wolf program appearing alone from the darkness in a mid distance. Walking
 
 ## Short Cinematic Film
 
-IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see through the eyes of the wolf programs, AR glasses on eyes. Scene with the wolves just standing on both sides of me. 
+IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see through the eyes of the wolf programs, AR glasses on eyes. Scene with the wolves just standing on both sides of me. We release the manifestations and they surveil the area of the hunt, then after analyzing the data we move in and capture targeted "entity".
