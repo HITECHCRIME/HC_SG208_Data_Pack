@@ -11,11 +11,11 @@ https://www.youtube.com/watch?v=LTN2OeO_Kk8
 
 **Title:** Data Pack / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** MOTHNODE
+**Production:** Killlxv?  / **Lyrics:** MOTHNODE
 
-**Narrative Design:**
+**Narrative Design:** MOTHNODE
 
-**Music Video Credits:**
+**Music Video Credits:** MOTHNODE
 
 ## Lyrics
 
