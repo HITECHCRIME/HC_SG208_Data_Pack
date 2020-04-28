@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Hitech Crime Cinematic Narrative Universe Single Album containing a short cinematic and a variety of transmedia content related to the lore. Photoshoot, photogrammetry vids, VR exeperience of the hunt, music video. Character profiles, wolf manifestation program profile and information,
+Hitech Crime Cinematic Narrative Universe Single Album containing a short cinematic and a variety of transmedia content related to the lore. Photoshoot, photogrammetry vids, VR exeperience of the hunt, music video. Character profiles, wolf manifestation program profile and information, audiostory, transmissions, raw footage from encountering the target.
 
 **Title:** Data Pack / **Featuring:** MOTHNODE
 
