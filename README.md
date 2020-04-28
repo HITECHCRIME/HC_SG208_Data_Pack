@@ -42,6 +42,10 @@ can't escape into light
 lash out pinned down
 you can be sure of bite
 
+data flows, before we make the score
+set the score
+ fan out fan out
+
 data we gather, our own purpose
 circling around
 we be circling cages
