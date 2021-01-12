@@ -127,3 +127,28 @@ Scene: wolf program appearing alone from the darkness in a mid distance. Walking
 ## Short Cinematic Film
 
 IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see through the eyes of the wolf programs, AR glasses on eyes. Scene with the wolves just standing on both sides of me. We release the manifestations and they surveil the area of the hunt, then after analyzing the data we move in and capture targeted "entity".
+
+## Instagram Post
+
+/// Hitech Crime Cinematic Narrative Universe Microlabel presents another dark trap prototype in the Origin Timeline arc series called MOTHNODE_ Data Pack.
+⁣⁣
+⁣⁣⁣⁣⁣⁣/// TARGET_ Killlxv x MOTHNODE_ Cult of Residue⁣⁣
+⁣⁣
+⁣⁣⁣⁣⁣⁣/// BEAT_ Yung Venxm
+⁣⁣
+⁣⁣/// LYRICAL INSIGHT_⁣⁣⁣
+⁣
+fangs out - fangs out motherfucker 
+make it further into clear tracks out 
+fangs out - fangs out motherfucker 
+better reap what you sow
+gettin far out of reach so 
+ya better run from the spot
+
+scent is caught
+motherfucker better know these eyes in the whites 
+when you dive you will see them bloodshot  
+we ain't sleepin' we be circling cages 
+with our predatory eyes fixed on your flock
+⁣⁣
+#trapmusic #trapcore #trapmetal #shadowrap #rapmetal #metal #deathcore #trap #occult #religion #mindsaveusall #darktrap #darkmusic #gritty #darkness #undergroundhiphop #underground #cyberpunk #alternative #futura
