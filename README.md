@@ -130,25 +130,27 @@ IRL manifestations, holograms, blue, Hitech Crime team on a hunt. I can see thro
 
 ## Instagram Post
 
-/// Hitech Crime Cinematic Narrative Universe Microlabel presents another dark trap prototype in the Origin Timeline arc series called MOTHNODE_ Data Pack.
+/// Hitech Crime Cinematic Narrative Universe Microlabel (@hitechcrime) presents MOTHNODE_ Data Pack, another dark futura trap prototype chapter in the Origin Timeline arc series. Fugitive is on the run. The hunt is on. Release the holographic intercept wolf programs.
+
+/// We're going to be releasing 3 music video previews this week. Make sure to share with your friends and followers who enjoy the dark dystopian vibes, like if you like it and save this post for future reference. As a Director Operative @mothnode and a human being thank you for your continuous support during the development of Hitech Crime Universe. Behind the scenes metabrand and music dev has been going from scratch for almost 3 years now. We are building up to break some new frontiers in transmedia, your presence truly means a world to me!
 ⁣⁣
-⁣⁣⁣⁣⁣⁣/// TARGET_ Killlxv x MOTHNODE_ Cult of Residue⁣⁣
+⁣⁣⁣⁣⁣⁣/// TARGET_ MOTHNODE_ Data Pack
 ⁣⁣
 ⁣⁣⁣⁣⁣⁣/// BEAT_ Yung Venxm
 ⁣⁣
 ⁣⁣/// LYRICAL INSIGHT_⁣⁣⁣
 ⁣
-fangs out - fangs out motherfucker 
+fangs out - fangs out mother****** 
 make it further into clear tracks out 
-fangs out - fangs out motherfucker 
+fangs out - fangs out mother****** 
 better reap what you sow
 gettin far out of reach so 
 ya better run from the spot
 
 scent is caught
-motherfucker better know these eyes in the whites 
+mother****** better know these eyes in the whites 
 when you dive you will see them bloodshot  
 we ain't sleepin' we be circling cages 
 with our predatory eyes fixed on your flock
 ⁣⁣
-#trapmusic #trapcore #trapmetal #shadowrap #rapmetal #metal #deathcore #trap #occult #religion #mindsaveusall #darktrap #darkmusic #gritty #darkness #undergroundhiphop #underground #cyberpunk #alternative #futura
+#trapmusic #trapcore #trapmetal #shadowrap #rapmetal #metal #deathcore #trap #occult #religion #mindsaveusall #darktrap #darkmusic #darkness #undergroundhiphop #underground #cyberpunk #alternative #futura #transmedia
