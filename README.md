@@ -118,6 +118,16 @@ with our predatory eyes fixed on your folks
 6. All Caught Up - Act V 03:14
 7. Programmatic Hostility - Outro 03:14
 
+ORIGIN TIMELINE CHAPTER [DATA PACK]
+
+hitechcri.me
+
+Visit our website to immerse yourself in an interactive transmedia experience and discover the world of Hitech Crime_
+
+Hitech Crime Cinematic Narrative Universe "Data Pack" narrative chapter is a part of the Origin Timeline.
+
+(tag the album cover with Origin Timeline symbol)
+
 ## Lore Notes
 
 Need more cybermysticism for the cover of Data Pack single album. 
