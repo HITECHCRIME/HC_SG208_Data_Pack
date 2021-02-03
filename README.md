@@ -108,6 +108,16 @@ with our predatory eyes fixed on your folks
 | 3 | *i'm* **tempt**ed in a | **u**nique way  |  **you** probably |  **won't** think |
 | 4 | *as i* **reach** to grab the |  **mic** i contem-  | **plate** what i | **might** say |
 
+## Tracklisting
+
+1. The Hunt - Intro 03:14
+2. Tracers - Act I 03:14
+3. Leash Release - Act II 03:14
+4. Wolven Paths - Act III 00:46
+5. Data Pack - Act IV 03:14
+6. All Caught Up - Act V 03:14
+7. Programmatic Hostility - Outro 03:14
+
 ## Lore Notes
 
 Need more cybermysticism for the cover of Data Pack single album. 
